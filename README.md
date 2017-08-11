@@ -1,8 +1,16 @@
-## Welcome to GitHub Pages
+Father-Daughter: Beyond Space and Time
 
-You can use the [editor on GitHub](https://github.com/anjed/MVD/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+Meghan Vermillion Donahue, 45
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+December 14, 1971 – Jun 24, 2017
+
+On June 29, 2017, Meghan Vermillion Donahue was laid to rest after a fearless fight against an aggressive pancreatic cancer.
+
+Among the items Meghan requested to keep by her side during her last days was the picture on the right where Meghan and her father were engaged in a toss and catch moment. On the surface, this father, daughter playtime would seem an ordinary family vacation memento but in hindsight, this father daughter picture taken 40 years ago had the hallmarks of frozen in time – Devine Inspirations!</p>
+      
+In 1987, at the tender age of 15, Meghan lost her father, Michael Vermillion, at the time a priest (Emmanuel Episcopalian Church in Virginia Beach, VA). Nearly 30 years later to the month, cancer would claim Meghan’s life. Ironically, the one thing Meghan wanted to see in her final days was this four decades-old picture of Meghan and her father.
+ 
+Perhaps, Meghan had Devine inclinations of her own to be reuniting with her father in the afterlife.  Much like the picture in which Meghan had trust and faith to fall back into her father’s protective arms as she descended from the toss, perhaps too, she must have been looking forward to a warm embrace into her father’s arms in their permanent home.  To God we belong, and to God we return. May you both rest in peace! 
 
 ### Markdown
 
